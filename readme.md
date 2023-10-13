@@ -1,13 +1,14 @@
-╔══╗                                                                                                                                   
-╚╗╔╝[SELL TIKTOK SHARE
+(¯`·¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.·´¯)
+( \                                                                                                                                    / )
+ ( ) SELL TIKTOK SHARE
 SELL TIKTOK VIEW
 CHEAP PRICE
-https://t.me/VPNXG]
-Lowest Price Payment via cypto only
-Can Trial If u dont trust] 
-╔╝(¯`v´¯)
-╚══`.¸.´ 
+https://t.me/VPNXG
 
+Lowest Price Payment via cypto only
+Can Trial If u dont trust ( ) 
+  (/                                                                                                                                  \)  
+   (.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯`·.¸¸.·´¯)   
 
 tiktok view
 tiktok follower
